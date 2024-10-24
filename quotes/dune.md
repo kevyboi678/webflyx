@@ -1,4 +1,4 @@
 * "May thy knife chip and shatter"
-* "Fear is the mind-killer"
-* "He who controls the spice controls the universe"
-* "The sleeper must awaken"
+* "A Great Man Doesn't Seek To Lead. He's Called To It."
+* "An Animal Caught In A Trap Will Gnaw Off Its Own Leg To Escape. What Will You Do?"
+* "When Is A Gift Not A Gift?"
